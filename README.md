@@ -8,6 +8,8 @@
 
 <hr>
 
+## 本文获取地址：https://www.bishecode.com/product/266/
+
 ## 3000套系统可挑选，获取链接：https://www.bishecode.com/
 
 ![alt text](images/cab672447ccac30929332c58193421d2.png)
