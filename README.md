@@ -8,7 +8,7 @@
 
 <hr>
 
-## 本文获取地址：https://www.bishecode.com/product/266/
+## 本项目获取地址：https://www.bishecode.com/product/266/
 
 ## 3000套系统可挑选，获取链接：https://www.bishecode.com/
 
